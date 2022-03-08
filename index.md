@@ -67,6 +67,8 @@ Ich schaue auch heute immer mal wieder den ein oder anderen Schinken und komme d
 
 ## Karl May
 
+![](winnetou_shatterhand.jpg)
+
 ### Soundtracks
 1. <a href="winnetou_melodie.mp3" target="_blank" rel="noopener noreferrer" >Winnetou-Melodie</a>  
 1. <a href="banditen-thema_winnetou3.mp3" target="_blank" rel="noopener noreferrer" >Banditen-Thema - Winnetou 3</a>  
@@ -104,6 +106,8 @@ Ich schaue auch heute immer mal wieder den ein oder anderen Schinken und komme d
 
 ## Gerd Fröbe
 
+![](gert_froebe.jpg)
+
 ### Filme
 1. <a href="https://www.youtube.com/watch?v=m2ZZy3BiLB8" target="_blank" rel="noopener noreferrer" >Nick Knattertons Abenteuer (1959)</a>  
 1. <a href="https://www.youtube.com/watch?v=t-nGD5da9og" target="_blank" rel="noopener noreferrer" >Der Gauner und der liebe Gott - Teil 1 (1960)</a>  
@@ -112,6 +116,8 @@ Ich schaue auch heute immer mal wieder den ein oder anderen Schinken und komme d
 1. <a href="https://www.youtube.com/watch?v=x-kFSCjhAjM" target="_blank" rel="noopener noreferrer" >Der Mann ohne Gesicht - Mister X (1974)</a>  
 
 ## Heinz Erhardt
+
+![](heinz_erhardt.jpg)
 
 ### Gesang
 1. <a href="https://www.youtube.com/watch?v=_Y_SPAtxX-w" target="_blank" rel="noopener noreferrer" >Agamemnon</a>  
@@ -184,6 +190,8 @@ Ich schaue auch heute immer mal wieder den ein oder anderen Schinken und komme d
 
 ## Jerry Cotton
 
+![](jerry_cotton.jpg)
+
 ### Filme
 1. <a href="https://www.youtube.com/watch?v=JnVqRGl9rDA" target="_blank" rel="noopener noreferrer" >Schüsse aus dem Geigenkasten (1965)</a>  
 1. <a href="https://www.youtube.com/watch?v=rrA5YiRUKOU" target="_blank" rel="noopener noreferrer" >Mordnacht in Manhattan (1965)</a>  
@@ -195,6 +203,8 @@ Ich schaue auch heute immer mal wieder den ein oder anderen Schinken und komme d
 1. Todesschüsse am Broadway (1969)  
 
 ## DuDu
+
+![](dudu.jpg)
 
 ### Filme
 
@@ -218,6 +228,8 @@ Ich schaue auch heute immer mal wieder den ein oder anderen Schinken und komme d
 1. <a href="https://xcine.me/filme-cat-ballou-hngen-sollst-du-in-wyoming-1965-5217-stream/deutsch" target="_blank" rel="noopener noreferrer" >Cat Ballou - Hängen sollst du in Wyoming (1965)</a>  
 
 ## Kommissar Maigret
+
+![](kommissar_maigret.jpg)
 
 ### Filme
 1. <a href="https://www.dailymotion.com/video/x802ovc" target="_blank" rel="noopener noreferrer" >Maigret und die Tänzerin Arlette (1960)</a>  
@@ -269,6 +281,8 @@ Ich schaue auch heute immer mal wieder den ein oder anderen Schinken und komme d
 1. <a href="https://www.dailymotion.com/video/x54z60a" target="_blank" rel="noopener noreferrer" >Maigret und sein größter Fall (1966)</a>  
 
 ## Dr. Richard Kimble - Auf der Flucht 
+
+![](dr_richard_kimble.jpg)
 
 * Erscheinungsjahr: 1963–1967  
 * Von 120 Episoden wurden 74 in Deutschland ausgestrahlt  
@@ -352,6 +366,8 @@ Ich schaue auch heute immer mal wieder den ein oder anderen Schinken und komme d
 1. <a href="https://www.dailymotion.com/video/x820fz8?playlist=x72k2j" target="_blank" rel="noopener noreferrer" >Das Urteil</a>  
 
 ## Die Lümmel sind los!
+
+![](luemmel_sind_los.jpg)
 
 ### Filme
 1. <a href="https://www.dailymotion.com/video/x28gmih" target="_blank" rel="noopener noreferrer" >Zur Hölle mit den Paukern (1967)</a>  
