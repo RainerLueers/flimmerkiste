@@ -2,7 +2,7 @@
 * [Unsere Hunde](unsere_hunde.html "Unsere Hunde")  
 * [Der Gemüsegarten](der_gemuesegarten.html "Der Gemüsegarten")  
 * [Rainer's Software Portfolio](rainers_software_portfolio.html "Rainer's Software Portfolio")
-* [Rainer's Flimmerkiste](rainers_flimmerkiste.html "Rainer's Flimmerkiste")
+* <a href="https://rainerlueers.github.io/flimmerkiste/" target="_blank">Rainer's Flimmerkiste</a>
 
 ---
 title: Rainer's Flimmerkiste
