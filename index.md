@@ -17,6 +17,8 @@ Ich schaue auch heute immer mal wieder den ein oder anderen Schinken und komme d
 
 ## Edgar Wallace
 
+![](edgar_wallace.png)
+
 ### Filme
 1. <a href="https://www.dailymotion.com/video/x4snfdf" target="_blank" rel="noopener noreferrer" >Das mysteriöse Schiff (1934)  
 1. <a href="https://www.dailymotion.com/video/x4v8d0x" target="_blank" rel="noopener noreferrer" > Der Würger von London (1939)</a>  
@@ -65,6 +67,7 @@ Ich schaue auch heute immer mal wieder den ein oder anderen Schinken und komme d
 1. <a href="https://www.dailymotion.com/video/x24cv8a?playlist=x3k6cx" target="_blank" rel="noopener noreferrer" >Das Geheimnis der grünen Stecknadel (1972)</a>  
 1. <a href="https://www.dailymotion.com/video/x220erc" target="_blank" rel="noopener noreferrer" >Das Raetsel des silbernen Halbmonds (1972)</a>  
 
+___
 ## Karl May
 
 ![](winnetou_shatterhand.jpg)
@@ -99,11 +102,13 @@ Ich schaue auch heute immer mal wieder den ein oder anderen Schinken und komme d
 1. <a href="https://www.dailymotion.com/video/x3y8vqf" target="_blank" rel="noopener noreferrer" >Winnetou und das Halbblut Apanatschi (1966)</a>  
 1. <a href="https://www.youtube.com/watch?v=IO3fla6Y1B8&list=PLEgpuXEXTltPjOTFlyiuvjH3_65WbnD4h&index=41" target="_blank" rel="noopener noreferrer" >Winnetou und sein Freund Old Firehand (1966)</a>  
 
+___
 ## Ennio Morricone
 
 ### Filmmusik
 1. <a href="Ennio Morricone_The Best of Ennio Morricone_Greatest_Hits.mp3" target="_blank" rel="noopener noreferrer" > The Best of Ennio Morricone - Greatest Hits</a>
 
+___
 ## Gerd Fröbe
 
 ![](gert_froebe.jpg)
@@ -115,6 +120,7 @@ Ich schaue auch heute immer mal wieder den ein oder anderen Schinken und komme d
 1. <a href="https://www.youtube.com/watch?v=ZHP7bqFV1hA" target="_blank" rel="noopener noreferrer" >Im Stahlnetz des Dr. Mabuse (1961)</a>  
 1. <a href="https://www.youtube.com/watch?v=x-kFSCjhAjM" target="_blank" rel="noopener noreferrer" >Der Mann ohne Gesicht - Mister X (1974)</a>  
 
+___
 ## Heinz Erhardt
 
 ![](heinz_erhardt.jpg)
@@ -188,6 +194,7 @@ Ich schaue auch heute immer mal wieder den ein oder anderen Schinken und komme d
 1. <a href="https://www.dailymotion.com/video/x21cjyu?playlist=x5m3m6" target="_blank" rel="noopener noreferrer" >Willi wird das Kind schon schaukeln (1972)</a>  
 1. Noch ’ne Oper (1979)  
 
+___
 ## Jerry Cotton
 
 ![](jerry_cotton.jpg)
@@ -202,6 +209,7 @@ Ich schaue auch heute immer mal wieder den ein oder anderen Schinken und komme d
 1. Der Tod im roten Jaguar (1968)  
 1. Todesschüsse am Broadway (1969)  
 
+___
 ## DuDu
 
 ![](dudu.jpg)
@@ -214,7 +222,10 @@ Ich schaue auch heute immer mal wieder den ein oder anderen Schinken und komme d
 1. <a href="https://www.dailymotion.com/video/x420277" target="_blank" rel="noopener noreferrer" >Das verrückteste Auto der Welt (1975)</a>  
 1. <a href="https://www.dailymotion.com/video/x42k3f9" target="_blank" rel="noopener noreferrer" >Zwei tolle Käfer räumen auf (1978)</a>  
 
+___
 ## Zorro
+
+![](zorro.jpg)
 
 ### Filme
 1. <a href="https://www.youtube.com/watch?v=9HwlakD4Y_M" target="_blank" rel="noopener noreferrer" >Zorro - Der blutrote Adler (1936)</a>  
@@ -222,11 +233,15 @@ Ich schaue auch heute immer mal wieder den ein oder anderen Schinken und komme d
 1. <a href="https://www.youtube.com/watch?v=GTd8u91gzg8" target="_blank" rel="noopener noreferrer" >Zorros Heimkehr und Rache (1962)</a>  
 1. <a href="https://www.youtube.com/watch?v=eEvhxrsBLT8&list=PLr9nhEFUrhD87f0ciIQkAYgr_fdjlIpVw&index=33" target="_blank" rel="noopener noreferrer" >Auf Zorros Spuren (1963)</a>  
 
+___
 ## Cat Ballou
+
+![](cat_ballou.jpg)
 
 ### Film
 1. <a href="https://xcine.me/filme-cat-ballou-hngen-sollst-du-in-wyoming-1965-5217-stream/deutsch" target="_blank" rel="noopener noreferrer" >Cat Ballou - Hängen sollst du in Wyoming (1965)</a>  
 
+___
 ## Kommissar Maigret
 
 ![](kommissar_maigret.jpg)
@@ -365,6 +380,7 @@ Ich schaue auch heute immer mal wieder den ein oder anderen Schinken und komme d
 1. <a href="https://www.dailymotion.com/video/x820fwc?playlist=x72k2j" target="_blank" rel="noopener noreferrer" >Dr. Kimble, sie sind verhaftet</a>  
 1. <a href="https://www.dailymotion.com/video/x820fz8?playlist=x72k2j" target="_blank" rel="noopener noreferrer" >Das Urteil</a>  
 
+___
 ## Die Lümmel sind los!
 
 ![](luemmel_sind_los.jpg)
