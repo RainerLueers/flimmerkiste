@@ -1,8 +1,8 @@
-* <a href="https://rainerlueers.github.io/sophies-yard/" target="_blank">Startseite</a>
-* <a href="https://rainerlueers.github.io/sophies-yard/unsere_hunde.html" target="_blank">Unsere Hunde</a>
-* <a href="https://rainerlueers.github.io/sophies-yard/der_gemuesegarten.html" target="_blank">Der Gemüsegarten</a>
-* <a href="https://rainerlueers.github.io/sophies-yard/rainers_software_portfolio.html" target="_blank">Rainer's Software Portfolio</a>
-* <a href="https://rainerlueers.github.io/flimmerkiste/" target="_blank">Rainer's Flimmerkiste</a>
+* <a href="https://rainerlueers.github.io/sophies-yard/">Startseite</a>
+* <a href="https://rainerlueers.github.io/sophies-yard/unsere_hunde.html">Unsere Hunde</a>
+* <a href="https://rainerlueers.github.io/sophies-yard/der_gemuesegarten.html">Der Gemüsegarten</a>
+* <a href="https://rainerlueers.github.io/sophies-yard/rainers_software_portfolio.html">Rainer's Software Portfolio</a>
+* <a href="https://rainerlueers.github.io/flimmerkiste/">Rainer's Flimmerkiste</a>
 
 ---
 title: Rainer's Flimmerkiste
