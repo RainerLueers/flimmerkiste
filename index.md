@@ -8,9 +8,10 @@
 title: Rainer's Flimmerkiste
 ---  
 
-<audio autoplay>
-  <source src="Music/Constantin.mp3" type="audio/mpeg">
-</audio>
+<script type="text/javascript">
+   var audio = new Audio('Music/Constantin.mp3');
+   audio.play();
+</script>
 
 ![](logo_constantin_film.jpg)
 
