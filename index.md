@@ -8,6 +8,10 @@
 title: Rainer's Flimmerkiste
 ---  
 
+<audio autoplay>
+  <source src="Music/Constantin.mp3" type="audio/mpeg">
+</audio>
+
 ![](logo_constantin_film.jpg)
 
 # Klassiker des Films
