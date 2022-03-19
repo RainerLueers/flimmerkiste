@@ -402,6 +402,9 @@ ___
 ___
 ## Francis Durbridge
 
+Das Halstuch ist ein deutscher Fernsehsechsteiler des britischen Autors Francis Durbridge, das der WDR 1961 
+produzierte und im Januar 1962 erstmals im Deutschen Fernsehen ausstrahlte.  
+
 ![](das_halstuch.jpg)
 
 ### Filme
@@ -412,8 +415,20 @@ ___
 1. <a href="https://www.youtube.com/watch?v=uy3dOsYuQU0" target="_blank" rel="noopener noreferrer" >Das Halstuch Teil 5 (1962)</a>
 1. <a href="https://www.youtube.com/watch?v=B6fmYrrrkMw" target="_blank" rel="noopener noreferrer" >Das Halstuch Teil 6 (1962)</a>
 
+___
+## Die Gentlemen bitten zur Kasse
 
+Die Gentlemen bitten zur Kasse ist ein deutscher Fernsehdreiteiler. Er wurde ab Anfang 1965 gedreht, 
+Erstausstrahlung war am 8. 10. und 13. Februar 1966. Der Film beschreibt den spektakulären Postzugraub in 
+Großbritannien am 8. August 1963, der generalstabsmäßig geplant und durchgeführt wurde und den Tätern die 
+Rekordbeute von £ 2.631.684 einbrachte (nach heutigem Wert etwa 56 Millionen Pfund Sterling bzw. 67 Millionen Euro)  
 
+![](Die_Gentlemen_bitten_zur_Kasse.jpg)
+
+### Filme
+1. <a href="https://www.dailymotion.com/video/x895wkn" target="_blank" rel="noopener noreferrer" >Der Plan (1966)</a>
+1. <a href="https://www.dailymotion.com/video/x895wow" target="_blank" rel="noopener noreferrer" >Der Überfall (1966)</a>
+1. <a href="https://www.dailymotion.com/video/x895ws7" target="_blank" rel="noopener noreferrer" >Die Flucht (1966)</a>
 
 
 
