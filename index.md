@@ -399,9 +399,18 @@ ___
 1. <a href="https://www.dailymotion.com/video/x28gmbv" target="_blank" rel="noopener noreferrer" >Morgen fällt die Schule aus (1971)</a>  
 1. <a href="https://www.dailymotion.com/video/x28gman" target="_blank" rel="noopener noreferrer" >Betragen ungenügend (1972)</a>  
 
+___
+## Francis Durbridge
 
+![](das_halstuch.jpg)
 
-
+### Filme
+1. <a href="https://www.youtube.com/watch?v=ttO6bijbLtU" target="_blank" rel="noopener noreferrer" >Das Halstuch Teil 1 (1962)</a>
+1. <a href="https://www.youtube.com/watch?v=3YSJuO-0HdE" target="_blank" rel="noopener noreferrer" >Das Halstuch Teil 2 (1962)</a>
+1. <a href="https://www.youtube.com/watch?v=FuCjBNSGPiw" target="_blank" rel="noopener noreferrer" >Das Halstuch Teil 3 (1962)</a>
+1. <a href="https://www.youtube.com/watch?v=Nlq3luSjexw" target="_blank" rel="noopener noreferrer" >Das Halstuch Teil 4 (1962)</a>
+1. <a href="https://www.youtube.com/watch?v=uy3dOsYuQU0" target="_blank" rel="noopener noreferrer" >Das Halstuch Teil 5 (1962)</a>
+1. <a href="https://www.youtube.com/watch?v=B6fmYrrrkMw" target="_blank" rel="noopener noreferrer" >Das Halstuch Teil 6 (1962)</a>
 
 
 
