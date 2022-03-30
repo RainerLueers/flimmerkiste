@@ -31,7 +31,7 @@ Ich schaue auch heute immer mal wieder den ein oder anderen Schinken und komme d
 1. <a href="https://www.dailymotion.com/video/x24cwwi?playlist=x5268c" target="_blank" rel="noopener noreferrer" >Der Würger von London (1940)</a>  
 1. <a href="https://www.dailymotion.com/video/x220exm" target="_blank" rel="noopener noreferrer" >Der Frosch mit der Maske (1959)</a>  
 1. <a href="https://www.dailymotion.com/video/x220f8o" target="_blank" rel="noopener noreferrer" >Der rote Kreis (1960)</a>  
-1. <a href="https://www.dailymotion.com/video/x220f4d" target="_blank" rel="noopener noreferrer" >Der Rächer (1960)</a>  
+1. <a href="https://youtu.be/OJDljn2U70E" target="_blank" rel="noopener noreferrer" >Der Rächer (1960)</a>  
 1. <a href="https://www.dailymotion.com/video/x220fk0" target="_blank" rel="noopener noreferrer" >Die Bande des Schreckens (1960)</a>  
 1. <a href="https://www.dailymotion.com/video/x220ezk" target="_blank" rel="noopener noreferrer" >Der grüne Bogenschütze (1961)</a>  
 1. <a href="https://www.dailymotion.com/video/x220fpj" target="_blank" rel="noopener noreferrer" >Die toten Augen von London (1961)</a>  
