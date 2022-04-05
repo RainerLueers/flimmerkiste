@@ -124,7 +124,12 @@ ___
 1. <a href="https://www.youtube.com/watch?v=m2ZZy3BiLB8" target="_blank" rel="noopener noreferrer" >Nick Knattertons Abenteuer (1959)</a>  
 1. <a href="https://www.youtube.com/watch?v=t-nGD5da9og" target="_blank" rel="noopener noreferrer" >Der Gauner und der liebe Gott - Teil 1 (1960)</a>  
 1. <a href="https://www.youtube.com/watch?v=a9kiMNZ_ElU&t=0s" target="_blank" rel="noopener noreferrer" >Der Gauner und der liebe Gott - Teil 2 (1960)</a>  
-1. <a href="https://www.youtube.com/watch?v=ZHP7bqFV1hA" target="_blank" rel="noopener noreferrer" >Im Stahlnetz des Dr. Mabuse (1961)</a>  
+1. <a href="https://www.youtube.com/watch?v=-OR06uxZoX0" target="_blank" rel="noopener noreferrer" >Das Testament des Dr.Mabuse (1933)</a>  
+1. <a href="https://www.youtube.com/watch?v=Qci-y35X3f0" target="_blank" rel="noopener noreferrer" >Die Tausend Augen des Dr. Mabuse (1960)</a>  
+1. <a href="https://www.youtube.com/watch?v=E97DL6gkOVM" target="_blank" rel="noopener noreferrer" >Im Stahlnetz des Dr. Mabuse (1961)</a>  
+1. <a href="https://www.youtube.com/watch?v=EyTh4B9leAw" target="_blank" rel="noopener noreferrer" >Die Unsichtbaren Krallen des Dr. Mabuse (1962)</a>
+1. <a href="https://www.youtube.com/watch?v=sTi4dg2Z6-s" target="_blank" rel="noopener noreferrer" >Scotland Yard jagt Dr. Mabuse (1963)</a>  
+1. <a href="https://www.youtube.com/watch?v=O0sY-6GnkTg" target="_blank" rel="noopener noreferrer" >Die Todesstrahlen des Dr. Mabuse (1964)</a>  
 1. <a href="https://www.youtube.com/watch?v=x-kFSCjhAjM" target="_blank" rel="noopener noreferrer" >Der Mann ohne Gesicht - Mister X (1974)</a>  
 
 ___
