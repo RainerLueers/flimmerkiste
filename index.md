@@ -24,39 +24,41 @@ Ich schaue auch heute immer mal wieder den ein oder anderen Schinken und komme d
 
 ![](edgar_wallace.png)
 
+### Umfangreiche Kollektion (Werbefrei)
+<a href="https://archive.org/download/KINO-Serie-Edgar_Wallace_Collection-Incl._Extra-Bryan_Edgar_Wallace-Incl._Bonus-By_ARTBLOOD" target="_blank" rel="noopener noreferrer" >Edgar Wallace - Kollektion</a>
+
 ### Filme
 1. <a href="https://www.dailymotion.com/video/x4snfdf" target="_blank" rel="noopener noreferrer" >Das mysteriöse Schiff (1934)  
 1. <a href="https://www.dailymotion.com/video/x4v8d0x" target="_blank" rel="noopener noreferrer" > Der Würger von London (1939)</a>  
 1. <a href="https://www.dailymotion.com/video/x4v8ie0" target="_blank" rel="noopener noreferrer" >Die Kammer des Schreckens (1940)</a>  
 1. <a href="https://www.dailymotion.com/video/x24cwwi?playlist=x5268c" target="_blank" rel="noopener noreferrer" >Der Würger von London (1940)</a>  
 1. <a href="https://www.dailymotion.com/video/x220exm" target="_blank" rel="noopener noreferrer" >Der Frosch mit der Maske (1959)</a>  
-1. <a href="https://www.dailymotion.com/video/x220f8o" target="_blank" rel="noopener noreferrer" >Der rote Kreis (1960)</a>  
+1. <a href="https://archive.org/download/KINO-Serie-Edgar_Wallace_Collection-Incl._Extra-Bryan_Edgar_Wallace-Incl._Bonus-By_ARTBLOOD/Edgar%20Wallace%20Collection%20-%2002%20-%201960%20-%20Der%20rote%20Kreis%20-%20by%20ARTBLOOD.mp4" target="_blank" rel="noopener noreferrer" >Der rote Kreis (1960)</a>  
 1. <a href="https://youtu.be/OJDljn2U70E" target="_blank" rel="noopener noreferrer" >Der Rächer (1960)</a>  
 1. <a href="https://www.dailymotion.com/video/x220fk0" target="_blank" rel="noopener noreferrer" >Die Bande des Schreckens (1960)</a>  
-1. <a href="https://www.dailymotion.com/video/x220ezk" target="_blank" rel="noopener noreferrer" >Der grüne Bogenschütze (1961)</a>  
-1. <a href="https://www.dailymotion.com/video/x220fpj" target="_blank" rel="noopener noreferrer" >Die toten Augen von London (1961)</a>  
+1. <a href="https://archive.org/details/Edgar-Wallace_Der-gruene-Bogenschuetze_Krimi-Klassiker_BRD-1961" target="_blank" rel="noopener noreferrer" >Der grüne Bogenschütze (1961)</a>  
+1. <a href="https://archive.org/details/Edgar-Wallace_Die-toten-Augen-von-London_Krimi-Klassiker" target="_blank" rel="noopener noreferrer" >Die toten Augen von London (1961)</a>  
 1. <a href="https://www.dailymotion.com/video/x220euo" target="_blank" rel="noopener noreferrer" >Der Fälscher von London (1961)</a>  
-1. <a href="https://www.dailymotion.com/video/x220elt" target="_blank" rel="noopener noreferrer" >Das Geheimnis der gelben Narzissen (1961)</a>  
+1. <a href="https://archive.org/details/Edgar-Wallace_Geheimnis-der-gelben-Narzissen_Krimi-Klassiker-1961" target="_blank" rel="noopener noreferrer" >Das Geheimnis der gelben Narzissen (1961)</a>  
 1. <a href="https://www.dailymotion.com/video/x220fmk" target="_blank" rel="noopener noreferrer" >Die seltsame Gräfin (1961)</a>  
-1. <a href="https://www.dailymotion.com/video/x220frf?playlist=x3k6cx" target="_blank" rel="noopener noreferrer" >Die Tür mit den 7 Schlössern (1962)</a>  
+1. <a href="https://archive.org/details/Edgar-Wallace_Die-Tuer-mit-den-7-Schloessern_Krimi-Klassiker_BRD-1962" target="_blank" rel="noopener noreferrer" >Die Tür mit den 7 Schlössern (1962)</a>  
 1. <a href="https://www.dailymotion.com/video/x24cvod" target="_blank" rel="noopener noreferrer" >Das Rätsel der roten Orchidee (1962)</a>  
 1. <a href="https://www.dailymotion.com/video/x24cwor?playlist=x5268c" target="_blank" rel="noopener noreferrer" >Der Teppich des Grauens (1962)</a>  
 1. <a href="https://www.dailymotion.com/video/x220em4?playlist=x5268c" target="_blank" rel="noopener noreferrer" >Das Gasthaus an der Themse (1962)</a>  
 1. Der Fluch der gelben Schlange (1963)  
 1. <a href="https://www.dailymotion.com/video/x220fdj?playlist=x5268c" target="_blank" rel="noopener noreferrer" >Der schwarze Abt (1963)</a>  
-1. <a href="https://www.dailymotion.com/playlist/x5268c" target="_blank" rel="noopener noreferrer" >Das indische Tuch (1963)</a>  
-1. <a href="https://www.dailymotion.com/video/x5le3iq" target="_blank" rel="noopener noreferrer" >Der Zinker (1963) [Teil 1]</a>  
-1. <a href="https://www.dailymotion.com/video/x5le3ir" target="_blank" rel="noopener noreferrer" >Der Zinker (1963) [Teil 2]</a>  
+1. <a href="https://archive.org/details/Edgar-Wallace_Das-indische-Tuch_Krimi-Klassiker_1963" target="_blank" rel="noopener noreferrer" >Das indische Tuch (1963)</a>  
+1. <a href="https://archive.org/details/Edgar-Wallace_Der-Zinker_Krimi-Klassiker_1963" target="_blank" rel="noopener noreferrer" >Der Zinker (1963)</a>  
 1. <a href="https://www.dailymotion.com/video/x24cvgi?playlist=x5268c" target="_blank" rel="noopener noreferrer" >Das Geheimnis der schwarzen Witwe (1963)</a>  
 1. <a href="https://www.dailymotion.com/video/x24cxkd?playlist=x5268c" target="_blank" rel="noopener noreferrer" >Die weisse Spinne (1963)</a>  
 1. <a href="https://www.dailymotion.com/video/x24cxr0" target="_blank" rel="noopener noreferrer" >Todestrommeln am grossen Fluss (1964)</a>  
 1. <a href="https://www.dailymotion.com/video/x24cxsa" target="_blank" rel="noopener noreferrer" >Zimmer 13 (1964)</a>  
 1. <a href="https://www.dailymotion.com/video/x24cx6p?playlist=x5268c" target="_blank" rel="noopener noreferrer" >Die Gruft mit dem Rätselschloss (1964)</a>  
-1. <a href="https://www.dailymotion.com/video/x24cw4w?playlist=x5268c" target="_blank" rel="noopener noreferrer" >Der Hexer (1964)</a>  
+1. <a href="https://archive.org/download/Edgar-Wallace_Der-Hexer_Neues-vom-Hexer_Krimi-Klassiker/Edgar-Wallace_Der-Hexer_Krimi-Klassiker_.mp4" target="_blank" rel="noopener noreferrer" >Der Hexer (1964)</a>  
 1. <a href="https://www.dailymotion.com/video/x24cvt2" target="_blank" rel="noopener noreferrer" >Das Verrätertor (1964)</a>  
 1. <a href="https://www.dailymotion.com/video/x24cxnn" target="_blank" rel="noopener noreferrer" >Sanders und das Schiff des Todes (1964)</a>  
 1. <a href="https://www.dailymotion.com/video/x220g1k?playlist=x5268c" target="_blank" rel="noopener noreferrer" >Wartezimmer zum Jenseits (1964)</a>  
-1. <a href="https://www.dailymotion.com/video/x220ftp" target="_blank" rel="noopener noreferrer" >Neues vom Hexer (1965)</a>  
+1. <a href="https://archive.org/download/Edgar-Wallace_Der-Hexer_Neues-vom-Hexer_Krimi-Klassiker/Edgar-Wallace_Neues-vom-Hexer_Krimi-Klassiker_.mp4" target="_blank" rel="noopener noreferrer" >Neues vom Hexer (1965)</a>  
 1. <a href="https://www.dailymotion.com/video/x220fh2?playlist=x5268c" target="_blank" rel="noopener noreferrer" >Der unheimliche Mönch (1965)</a>  
 1. <a href="https://www.dailymotion.com/video/x220eqq" target="_blank" rel="noopener noreferrer" >Das Rätsel des silbernen Dreiecks (1966)</a>  
 1. <a href="https://www.dailymotion.com/video/x220eq4?playlist=x5268c" target="_blank" rel="noopener noreferrer" >Das Geheimnis der weissen Nonne (1966)</a>  
